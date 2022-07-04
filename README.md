@@ -1,6 +1,7 @@
 - Hi, I’m @Keronon_Sathmace in World Net
-- I’m interested in Programming, Drawing and Shogi-Chesses.
-- I’m currently learning ... English ... hah.
+- Interested in Programming, Drawing and Shogi-Chesses.
+- Currently learning ... English ... hah.
 
 - How to reach me ...
-  U can try to use my VK-id: ghostly_fire
+  You can try to use my VK-id: ghostly_fire
+  Or write to my job-mail: keronons.job@gmail.com
